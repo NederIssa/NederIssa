@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @NederIssa
 - 👀 I’m interested in airplanes.
-- 🌱 I’m currently learning inglish.
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning spanish, french, mandarin and how to sing.
 - 📫 How to reach me NederIssa13#1570
 
 <!---
